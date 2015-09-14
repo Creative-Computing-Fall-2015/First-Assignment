@@ -33,4 +33,6 @@ Amon Dario Appelt - appea617@newschool.edu
 
 Chris Allick - allickc@newschool.edu
 
+Maria Badasian - badam190@newschool.edu
+
 
